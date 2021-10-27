@@ -1,6 +1,7 @@
-**Kyle Wickman**
-Software Development Manager
-@ MEDITECH
+**Kyle Wickman**  
+Software Development Manager  
+@ MEDITECH  
+
 
 ## Disclaimers
 -  You will find my document may resemble others you encounter online and sometimes looks like a copy & paste, and that’s OK, it just means I couldn’t put it in better words.
