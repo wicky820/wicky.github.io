@@ -31,7 +31,7 @@ These meetings help establish a level of trust between us. They are a tool for m
 I find that having a half hour meeting each week works well. But we can adjust. I like to keep a shared document to capture future topics to discuss. It helps to record notes from the meeting as well to refer back on.
 
 ## Communication
-There will be times when I may appear too busy to talk. Meetings can be moved around more than you may realize. When meetings are run well, they shouldn’t run for the full allotment of time. So please don’t let my schedule stop you from reaching out. Refer to the “My Job” section above. I am here to support you. I will admit I can be poor about responding to emails on occasion. So, if you need to talk to me, the best way to get my attention is to send me a text. I will make time to respond as quickly as I can. 
+There will be times when I may appear too busy to talk. Meetings can be moved around more than you may realize. When meetings are run well, they shouldn’t run for the full allotment of time. So please don’t let my schedule stop you from reaching out. Refer to the “My Role” section above. I am here to support you. I will admit I can be poor about responding to emails on occasion. So, if you need to talk to me, the best way to get my attention is to send me a text. I will make time to respond as quickly as I can. 
 
 ## Autonomy and Teamwork
 There is a fine line between being able to work well independently and working together as a team toward a common goal. I will encourage and steer your individual performance and productivity. You will be given space to fail, grow and flourish. But we need to balance individual autonomy with the goals of the team. While you, as an individual, may be more productive focusing on your own tasks, you may actually be holding back the team while they wait for you. I find the Agile Penny Game is an interesting demonstration to show why this is. If you don’t know what it is, there are plenty of short youtube videos explaining the concept.
@@ -49,7 +49,7 @@ There is a fine line between being able to work well independently and working t
 ## Personality Quirks
 -  I might be quiet on occasion. That’s either me thinking deeply or I’m leaving space for others to showcase their ideas and skills.
 -  I do not take myself seriously. Life’s too short to get offended. 
--  I sometimes swear too much. But in a casual way, not mean spirited.
+-  I sometimes swear a bit. But always in a casual way, not mean spirited.
 -  I tend to write with bullets ... and ellipses … too much.
 
 
