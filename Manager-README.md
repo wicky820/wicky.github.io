@@ -1,6 +1,6 @@
 **Kyle Wickman**  
 Software Development Manager  
-@ MEDITECH  
+@ Maxwell Health / Sun Life  
 
 
 ## Disclaimers
